@@ -1,4 +1,4 @@
- <div id="header" align="center"><h2>Привет, я люблю сша кто не любит сша dni тупые твари гомункуды</h2>
+ <div id="header" align="center"><h2>Привет, я люблю США кто не любит США dni тупые твари гомункуды</h2>
 ‹𝟹♡︎
 <div id="header" align="center">
   <img src="https://i.pinimg.com/originals/11/54/cc/1154cc77b60e220e77296f7d4f648bcd.gif" width="400"/>
