@@ -28,4 +28,4 @@
   <img src="https://i.pinimg.com/originals/bb/42/26/bb42262b0d941ecd34fe9043c17191a3.gif" width="150"/> 
    <div id="header" align="center"><h2>самые любимые блогеры/стримеры:</h2>
     <div id="header" align="center"><h4>T2x2, Хесус (и много других)</h2>
-  <img src="https://i.pinimg.com/originals/e7/78/de/e778de59014bfffa7745dc19bc833c12.gif" width="200"/>
+  <img src="https://i.pinimg.com/originals/b5/e5/d5/b5e5d55f9d2d49f56e89bd9b7f3729d1.gif" width="400"/>
