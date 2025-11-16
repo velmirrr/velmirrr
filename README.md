@@ -20,14 +20,16 @@
   
 
  <div id="header" align="center"><h2>𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙢𝙪𝙨𝙞𝙘𝙖𝙡 𝙖𝙧𝙩𝙞𝙨𝙩𝙨 𝙖𝙣𝙙 𝙗𝙖𝙣𝙙𝙨:</h2>
-   <div id="header" align="center"><h4>MARETU, Rory in early 20s, The Living Tombstone, JackStauber, TV Girl (The Night in Question: French Exit Outtakes),Lady Gaga, Ayesha Erotica, Lemon Demon, Mother Mother, Heavenly, femtanyl, 
+   <div id="header" align="center"><h4>MARETU, Rory in early 20s, The Living Tombstone, JackStauber, [♡!]TV Girl (The Night in Question: French Exit Outtakes),Lady Gaga, Ayesha Erotica, Lemon Demon, Mother Mother, Heavenly, femtanyl, 
 6arelyhuman.</h2>
     <img src="https://i.pinimg.com/736x/04/c2/e4/04c2e4bfb17f2bdf2f203e39ad2c2d13.jpg" width="100"/>
  <img src="https://i.pinimg.com/originals/ed/c6/23/edc6230bf65f994072b000b9e9913af9.gif" width="150"/>
  <div id="header" align="center"><h2>𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙜𝙖𝙢𝙚𝙨:</h2>
- <div id="header" align="center"><h4>Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria.</h2>
+ <div id="header" align="center"><h4>[♡!]Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria.</h2>
   <img src="https://i.pinimg.com/originals/bb/42/26/bb42262b0d941ecd34fe9043c17191a3.gif" width="150"/> 
     <img src="https://i.pinimg.com/1200x/67/15/38/6715383b8118932b99b9bd2f60fe81d5.jpg" width="100"/>
    <div id="header" align="center"><h2>𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙨𝙩𝙧𝙚𝙖𝙢𝙚𝙧𝙨:</h2>
-    <div id="header" align="center"><h4>T2x2, Хесус (и много других)</h2>
+    <div id="header" align="center"><h4>T2x2, [♡!]Хесус (и много других)</h2>
+     <img src="https://i.pinimg.com/originals/1b/87/a8/1b87a85cff282de6793bc1b535ca9062.gif" width="200"/>
   <img src="https://i.pinimg.com/originals/b5/e5/d5/b5e5d55f9d2d49f56e89bd9b7f3729d1.gif" width="200"/>
+    <img src="https://i.pinimg.com/originals/1b/87/a8/1b87a85cff282de6793bc1b535ca9062.gif" width="200"/>
