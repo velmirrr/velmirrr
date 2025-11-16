@@ -3,10 +3,8 @@
 <div id="header" align="center">
   <img src="https://i.pinimg.com/originals/11/54/cc/1154cc77b60e220e77296f7d4f648bcd.gif" width="400"/>
 </div>
-<div id="header" align="center">
+<div id="header" align="center"> 
   <img src="https://i.pinimg.com/originals/02/d5/43/02d5436362f7ff8f9470c7a4b9d8a061.gif" width="400"/>
-  <div id="header" align="center">
-<div id="header" align="center">
 
  <div id="header" align="center"><h2>𝙛𝙖𝙫 𝙘𝙝𝙖𝙧𝙨:</h2>
     <img src="https://i.pinimg.com/originals/8c/34/6a/8c346ad0ccd44aa3cc7940f44c1f2f57.gif" width="150"/> 
@@ -20,11 +18,11 @@
   
 
  <div id="header" align="center"><h2>𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙢𝙪𝙨𝙞𝙘𝙖𝙡 𝙖𝙧𝙩𝙞𝙨𝙩𝙨 𝙖𝙣𝙙 𝙗𝙖𝙣𝙙𝙨:</h2>
-   <div id="header" align="center"><h4>MARETU, Rory in early 20s, The Living Tombstone, JackStauber, [💗!] TV Girl (The Night in Question: French Exit Outtakes, French Exit), Lady Gaga, Ayesha Erotica, Lemon Demon, Mother Mother, Heavenly, femtanyl, 
+   <div id="header" align="center"><h4>MARETU, Rory in early 20s, The Living Tombstone, JackStauber, [💗!] TV Girl, Lady Gaga, Ayesha Erotica, Lemon Demon, Mother Mother, Heavenly, femtanyl, 
 6arelyhuman.</h2>
     <img src="https://i.pinimg.com/736x/04/c2/e4/04c2e4bfb17f2bdf2f203e39ad2c2d13.jpg" width="100"/>
  <img src="https://i.pinimg.com/originals/ed/c6/23/edc6230bf65f994072b000b9e9913af9.gif" width="150"/>
-   ⁀➷ 𝒻𝒶𝓋𝑜𝓇𝒾𝓉𝑒 𝓈𝑜𝓃𝑔𝓈: TV (Alex G), Heaven Is a Bedroom (TV Girl), It Almost Worked (TV Girl)
+   ⁀➷ 𝒻𝒶𝓋𝑜𝓇𝒾𝓉𝑒 𝓈𝑜𝓃𝑔𝓈: Blue Hair (TV Girl), Heaven Is a Bedroom (TV Girl)
  <div id="header" align="center"><h2>𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙜𝙖𝙢𝙚𝙨:</h2>
  <div id="header" align="center"><h4>[💗!] Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria.</h2>
   <img src="https://i.pinimg.com/originals/bb/42/26/bb42262b0d941ecd34fe9043c17191a3.gif" width="150"/> 
