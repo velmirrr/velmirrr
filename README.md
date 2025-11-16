@@ -26,7 +26,6 @@
  <div id="header" align="center"><h2>𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙜𝙖𝙢𝙚𝙨:</h2>
  <div id="header" align="center"><h4>Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria.</h2>
   <img src="https://i.pinimg.com/originals/bb/42/26/bb42262b0d941ecd34fe9043c17191a3.gif" width="150"/> 
-   <div id="header" align="center"><h2>а еще я люблю крыс очень сильно правда</h2>
-  <img src="https://i.pinimg.com/originals/93/62/1f/93621f5ffc55f72b905e797ae3f8367f.gif" width="170"/>
+   <div id="header" align="center"><h2>самые любимые блогеры/стримеры:</h2>
+    <div id="header" align="center"><h4>T2x2, Хесус (и много других)</h2>
   <img src="https://i.pinimg.com/originals/e7/78/de/e778de59014bfffa7745dc19bc833c12.gif" width="200"/>
-  <img src="https://i.pinimg.com/originals/33/41/26/334126edf4d0c8a8e94a1ed2d50b274d.gif" width="200"/>
