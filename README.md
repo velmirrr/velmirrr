@@ -25,7 +25,7 @@
    <img src="https://i.pinimg.com/originals/8c/34/6a/8c346ad0ccd44aa3cc7940f44c1f2f57.gif" width="150"/> 
   
 
- <div id="header" align="center"><h2>🎨➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙢𝙪𝙨𝙞𝙘𝙖𝙡 𝙖𝙧𝙩𝙞𝙨𝙩𝙨 𝙖𝙣𝙙 𝙗𝙖𝙣𝙙𝙨:</h2>
+ <div id="header" align="center"><h2>🎧➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙢𝙪𝙨𝙞𝙘𝙖𝙡 𝙖𝙧𝙩𝙞𝙨𝙩𝙨 𝙖𝙣𝙙 𝙗𝙖𝙣𝙙𝙨:</h2>
    <div id="header" align="center"><h4>MARETU, Rory in early 20s, The Living Tombstone, JackStauber, [💗] TV Girl, Lady Gaga, Ayesha Erotica, Lemon Demon, Mother Mother, Heavenly, femtanyl, 
 6arelyhuman.</h2>
     <img src="https://i.pinimg.com/736x/04/c2/e4/04c2e4bfb17f2bdf2f203e39ad2c2d13.jpg" width="100"/>
