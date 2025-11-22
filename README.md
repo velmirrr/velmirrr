@@ -32,7 +32,7 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone, JackStauber, [💗] TV Girl, Lad
     <img src="https://i.pinimg.com/736x/04/c2/e4/04c2e4bfb17f2bdf2f203e39ad2c2d13.jpg" width="100"/>
  <img src="https://i.pinimg.com/originals/ed/c6/23/edc6230bf65f994072b000b9e9913af9.gif" width="150"/>
     
-   ⁀➷ 𝒻𝒶𝓋𝑜𝓇𝒾𝓉𝑒 𝓈𝑜𝓃𝑔: For You (TV Girl)
+
    ◜◡◝
  <div id="header" align="center"><h2>🌠➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙜𝙖𝙢𝙚𝙨:</h2>
  <div id="header" align="center"><h4>[💗] Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria.</h2>
@@ -43,5 +43,9 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone, JackStauber, [💗] TV Girl, Lad
      <img src="https://i.pinimg.com/originals/1b/87/a8/1b87a85cff282de6793bc1b535ca9062.gif" width="200"/>
   <img src="https://i.pinimg.com/originals/b5/e5/d5/b5e5d55f9d2d49f56e89bd9b7f3729d1.gif" width="200"/>
     <img src="https://i.pinimg.com/originals/1b/87/a8/1b87a85cff282de6793bc1b535ca9062.gif" width="200"/>
-    
-  
+    <div id="header" align="center"><h2>это ФОТО ЯЯЯ и ст.ва никитка ВЫ ОБА ГОВНА ПОНЯЛИ я лизал вашей матери] геи простутутки закрыли ее</h2>
+     <img src="https://i.pinimg.com/736x/fc/bd/46/fcbd46429c279cb20921bc72693f090f.jpg" width="300"/> 
+       <img src="https://i.pinimg.com/736x/41/29/6e/41296e1ea23571d1acd5f4f32970805c.jpg" width="280"/> 
+        <img src="https://i.pinimg.com/736x/6b/3b/6e/6b3b6e238b07aab6218ff7341b165d25.jpg" width="300"/> 
+      
+ ахаххаха нищая поплачь
