@@ -81,6 +81,8 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone, JackStauber, [💗] TV Girl, Lad
                     <div align="center">⠀
                        <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                           <div align="center">
-  <div align="center">https://www.youtube.com/watch?v=EMUH05hZ3_8 Выдры очень рады огромному лососю
-    <div align="center">https://www.youtube.com/watch?v=1oO9VpyCO2w 
-Вот как я фотографирую детенышей гренландских тюленей.
+<div align="center"><h2>https://www.youtube.com/watch?v=1oO9VpyCO2w <h2>
+<img src="https://i.pinimg.com/originals/8a/e6/77/8ae67703d5a803ca1824b4791f4bf532.gif" width="200"/> 
+ <img src="https://i.pinimg.com/originals/8a/e6/77/8ae67703d5a803ca1824b4791f4bf532.gif" width="200"/> 
+ <img src="https://i.pinimg.com/originals/8a/e6/77/8ae67703d5a803ca1824b4791f4bf532.gif" width="200"/> 
+ <img src="https://i.pinimg.com/originals/8a/e6/77/8ae67703d5a803ca1824b4791f4bf532.gif" width="200"/> 
