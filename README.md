@@ -61,9 +61,14 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone, JackStauber, [💗] TV Girl, Lad
                                                      <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                                                             <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
     <div id="header" align="center"><h2>это ФОТО ЯЯЯ и ст.ва никитка ВЫ ОБА ГОВНА ПОНЯЛИ я лизал вашей матери] геи простутутки закрыли ее</h2>
-     <img src="https://i.pinimg.com/736x/fc/bd/46/fcbd46429c279cb20921bc72693f090f.jpg" width="300"/> 
-       <img src="https://i.pinimg.com/736x/41/29/6e/41296e1ea23571d1acd5f4f32970805c.jpg" width="280"/> 
-        <img src="https://i.pinimg.com/736x/6b/3b/6e/6b3b6e238b07aab6218ff7341b165d25.jpg" width="300"/> 
-        <div align="center"><img src="https://i.pinimg.com/736x/c7/aa/0d/c7aa0dfa1950b54f43a20188165a74e7.jpg" width="200"/> 
+     <img src="https://i.pinimg.com/736x/fc/bd/46/fcbd46429c279cb20921bc72693f090f.jpg" width="200"/> 
+       <img src="https://i.pinimg.com/736x/41/29/6e/41296e1ea23571d1acd5f4f32970805c.jpg" width="200"/> 
+        <img src="https://i.pinimg.com/736x/6b/3b/6e/6b3b6e238b07aab6218ff7341b165d25.jpg" width="200"/> 
+           <div align="center">⠀
+          <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀
+           <div align="center">
+              <div align="center">⠀
+        <div align="center"><img src="https://i.pinimg.com/736x/c7/aa/0d/c7aa0dfa1950b54f43a20188165a74e7.jpg" width="250"/> 
       
   <div align="center">ахаххаха нищая поплачь 
+  
