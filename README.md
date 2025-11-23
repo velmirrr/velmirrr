@@ -83,6 +83,4 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone, JackStauber, [💗] TV Girl, Lad
                           <div align="center">
                         
 <div align="center"><h2>https://www.youtube.com/watch?v=1oO9VpyCO2w <h2>
-<img src="https://i.pinimg.com/originals/8a/e6/77/8ae67703d5a803ca1824b4791f4bf532.gif" width="150"/> 
-<img src="https://i.pinimg.com/originals/1d/5e/cc/1d5ecc2339406e3c610bfe21a1aec1fb.gif" width="150"/> 
 
