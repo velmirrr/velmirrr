@@ -52,7 +52,22 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone [💗], JackStauber, TV Girl, Lad
      <img src="https://i.pinimg.com/originals/1b/87/a8/1b87a85cff282de6793bc1b535ca9062.gif" width="200"/>
   <img src="https://i.pinimg.com/originals/b5/e5/d5/b5e5d55f9d2d49f56e89bd9b7f3729d1.gif" width="200"/>
     <img src="https://i.pinimg.com/originals/1b/87/a8/1b87a85cff282de6793bc1b535ca9062.gif" width="200"/>
-    <div align="center">⠀⠀⠀⠀
+        <div align="center">⠀⠀⠀⠀
+       <div align="center">⠀
+          <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀
+           <div align="center">
+              <div align="center">⠀
+                 <div align="center">⠀
+                    <div align="center">⠀
+                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+                          <div align="center <div align="center">⠀⠀⠀⠀
+       <div align="center">⠀
+          <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀
+           <div align="center">
+              <div align="center">⠀
+                 <div align="center">⠀
+                  
+<div align="center">⠀⠀⠀⠀
        <div align="center">⠀
           <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀
            <div align="center">
@@ -61,8 +76,8 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone [💗], JackStauber, TV Girl, Lad
                     <div align="center">⠀
                        <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                           <div align="center">⠀
-                  <div align="center"><h2>dni list (мне насрат):</h2> 
-                   фанаты аластора и чарли, ФАНАТЫ АЛАСТОРА И ЧАРЛИ 2.0, фанаты исипи, дохуя смешные фанаты ультракилла (блять серьезно идите нахуй я вас больше всех ненавижу), анасте1ша и ей подобные (TW виарван анастейша aesthetic) уже представили как она своими сосисочками пишет пошленький фанфик про горо?❤️
+                  <div align="center"><h2>дни оисть (мне насрать):</h2> 
+                   фанаты аластора и чарли, дохуя смешные фанаты ультракилла (блять серьезно идите нахуй я вас больше всех ненавижу), анасте1ша и ей подобные (TW виарван анастейша aesthetic) уже представили как она своими сосисочками пишет пошленький фанфик про горо?❤️
                         <div align="center">⠀⠀<img src="https://i.pinimg.com/1200x/ad/13/b8/ad13b803d8ee7e90f65543d49b7f4e94.jpg" width="200"/> 
                          <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                                 <div align="center">⠀
