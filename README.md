@@ -1,12 +1,4 @@
 
-<div id="header" align="center"><h2>❗😅😍🤪 ПРИВЕТ МЕНЯ ЗОВУТ ВЕЛМИРУЩКА✧˖°.⋆｡‧˚ʚ🍓ɞ˚‧｡⋆(,,>﹏<,,)😁🍓❤️💋😘👍</h2>
-   <div id="header" align="center"> 
-   <img src="https://media1.tenor.com/m/34pip_SC4o8AAAAC/illusion-carnival-deliriini.gif" width="490"/>
-      <div align="center">⠀
-        <div align="center">⠀
-            <div align="center">⠀<div align="center">⠀
-        <div align="center">⠀
-            <div align="center">⠀
 <div id="header" align="center"><h2> я люблю США кто не любит США dni тупые твари гомункуды</h2>
    <div id="header" align="center"> 
    <img src="https://i.pinimg.com/1200x/35/9c/a2/359ca22727b7d1b55e5b4064b72fa9b9.jpg" width="50"/>
