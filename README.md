@@ -70,7 +70,7 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone [💗], JackStauber, TV Girl, Lad
                                               <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀
                                                      <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                                                             <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-    <div id="header" align="center"><h2>это ФОТО ЯЯЯ и ст.ва никитка ВЫ ОБА ГОВНА ПОНЯЛИ я лизал вашей матери] геи простутутки закрыли ее</h2>
+    <div id="header" align="center"><h2>это ФОТО ЯЯЯ и ст.ва ВЫ ОБА ГОВНА ПОНЯЛИ я лизал вашей матери] власть страницы перешла в руки аль-каиды</h2>
      <img src="https://i.pinimg.com/736x/fc/bd/46/fcbd46429c279cb20921bc72693f090f.jpg" width="200"/> 
        <img src="https://i.pinimg.com/736x/41/29/6e/41296e1ea23571d1acd5f4f32970805c.jpg" width="200"/> 
         <img src="https://i.pinimg.com/736x/6b/3b/6e/6b3b6e238b07aab6218ff7341b165d25.jpg" width="200"/> 
@@ -93,5 +93,3 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone [💗], JackStauber, TV Girl, Lad
                           <div align="center">
                         
 <div align="center"><h2>https://www.youtube.com/watch?v=1oO9VpyCO2w <h2>
-мне честно плевать что я тут нахуебенила разбирайтесь как хотите
-
