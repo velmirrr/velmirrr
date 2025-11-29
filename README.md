@@ -1,6 +1,6 @@
 
 <div id="header" align="center"><h2>❗😅😍🤪 ПРИВЕТ МЕНЯ ЗОВУТ ВЕЛМИР✧˖°.⋆｡‧˚ʚ🍓ɞ˚‧｡⋆(,,>﹏<,,)😁🍓❤️💋😘👍</h2>
-   <div id="header" align="center">
+   <div id="header" align="center"> 
    <img src="https://media1.tenor.com/m/34pip_SC4o8AAAAC/illusion-carnival-deliriini.gif" width="490"/>
       <div align="center">⠀
         <div align="center">⠀
@@ -61,7 +61,7 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone [💗], JackStauber, TV Girl, Lad
                     <div align="center">⠀
                        <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                           <div align="center">⠀
-                  <div align="center">Адам делает потягушки сидя на унитазе
+                  <div align="center">also dni ебаны дохуя смешные фанаты ультракилла (блять серьезно идите нахуй я вас больше всех ненавижу) 
                          <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                                 <div align="center">⠀
                                        <div align="center"> 
@@ -91,5 +91,5 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone [💗], JackStauber, TV Girl, Lad
                           <div align="center">
                         
 <div align="center"><h2>https://www.youtube.com/watch?v=1oO9VpyCO2w <h2>
-
+мне честно плевать что я тут нахуебенила разбирайтесь как хотите
 
