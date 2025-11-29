@@ -61,7 +61,9 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone [💗], JackStauber, TV Girl, Lad
                     <div align="center">⠀
                        <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                           <div align="center">⠀
-                  <div align="center">also dni ебаны дохуя смешные фанаты ультракилла (блять серьезно идите нахуй я вас больше всех ненавижу) 
+                  <div align="center"><h2>dni list (мне насрат):</h2> 
+                   фанаты аластора и чарли, ФАНАТЫ АЛАСТОРА И ЧАРЛИ 2.0, фанаты исипи, дохуя смешные фанаты ультракилла (блять серьезно идите нахуй я вас больше всех ненавижу), анасте1ша и ей подобные (TW виарван анастейша aesthetic) уже представили как она своими сосисочками пишет пошленький фанфик про горо?❤️
+                        <div align="center">⠀⠀<img src="https://i.pinimg.com/1200x/ad/13/b8/ad13b803d8ee7e90f65543d49b7f4e94.jpg" width="200"/> 
                          <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                                 <div align="center">⠀
                                        <div align="center"> 
