@@ -36,7 +36,7 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone [💗], JackStauber, TV Girl, Lad
 
    ◜◡◝
  <div id="header" align="center"><h2>🌠➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙜𝙖𝙢𝙚𝙨:</h2>
- <div id="header" align="center"><h4>[💗] Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria, Undertale, Tricky Towers, Illusion Carnival, Unsorted Horror (all games).</h2>
+ <div id="header" align="center"><h4>[💗] Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria, Undertale, Tricky Towers, Illusion Carnival, Unsorted Horror.</h2>
   <img src="https://i.pinimg.com/originals/05/e7/8d/05e78d281879a5bbc3e36dcb42d9bcf9.gif" width="150"/> 
     <img src="https://i.pinimg.com/1200x/67/15/38/6715383b8118932b99b9bd2f60fe81d5.jpg" width="100"/>
    <div id="header" align="center"><h2>🔥➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 𝙨𝙩𝙧𝙚𝙖𝙢𝙚𝙧𝙨:</h2>
