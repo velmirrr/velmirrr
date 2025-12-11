@@ -27,20 +27,20 @@
 
  <div id="header" align="center"><h2>🎧➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 m̲u̲s̲i̲c̲a̲l̲ ̲a̲r̲t̲i̲s̲t̲s̲ 𝙖𝙣𝙙 b̲a̲n̲d̲s̲:</h2>
    <div id="header" align="center"><h4>     ⸝⸝ᯓ               ⠀⠀MARETU, Rory in early 20s, 
-NEEDY GIRL OVERDOSE OSTs, The Living Tombstone [💗], JackStauber, TV Girl, Lady Gaga, Ayesha Erotica, Lemon Demon, Mother Mother, Heavenly, femtanyl, 
+NEEDY GIRL OVERDOSE OSTs, The Living Tombstone, JackStauber, TV Girl, Lady Gaga, Ayesha Erotica, Lemon Demon, Mother Mother, Heavenly, femtanyl, 
 6arelyhuman.                      ⠀⠀ᯓ⸝⸝</h2>           
   <img src="https://i.pinimg.com/736x/34/78/c6/3478c6e6aee7cfb85e9e211445e890a9.jpg" width="50"/>⠀⠀𓂃
       <img src="https://i.pinimg.com/736x/04/c2/e4/04c2e4bfb17f2bdf2f203e39ad2c2d13.jpg" width="100"/>
  <img src="https://i.pinimg.com/originals/ed/c6/23/edc6230bf65f994072b000b9e9913af9.gif" width="150"/> 
       <div align="center">⠀◜◡◝   <div align="center">⠀  <div align="center">⠀
  <div id="header" align="center"><h2>🌠➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 g̲a̲m̲e̲s̲:</h2>
- <div id="header" align="center"><h4> ⸝⸝ᯓ                           ⠀[💗] Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria, Undertale, Tricky Towers, Illusion Carnival, Unsorted Horror.                    ⠀⠀ᯓ⸝⸝</h2>
+ <div id="header" align="center"><h4> ⸝⸝ᯓ                           ⠀ Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria, Undertale, Tricky Towers, Illusion Carnival, Unsorted Horror.                    ⠀⠀ᯓ⸝⸝</h2>
   <img src="https://i.pinimg.com/originals/05/e7/8d/05e78d281879a5bbc3e36dcb42d9bcf9.gif" width="150"/> 
     <img src="https://i.pinimg.com/1200x/67/15/38/6715383b8118932b99b9bd2f60fe81d5.jpg" width="100"/>
        <div align="center">⠀  <div align="center">⠀  <div align="center">⠀  <div align="center">⠀
           
    <div id="header" align="center"><h2>🔥➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 s̲t̲r̲e̲a̲m̲e̲r̲s̲ :</h2>
-    <div id="header" align="center"><h4>    T2x2, [💗] Хесус, Стинт (и много других)</h2>
+    <div id="header" align="center"><h4>    T2x2, Хесус, Стинт (и много других)</h2>
      <img src="https://i.pinimg.com/originals/1b/87/a8/1b87a85cff282de6793bc1b535ca9062.gif" width="200"/>
   <img src="https://i.pinimg.com/originals/b5/e5/d5/b5e5d55f9d2d49f56e89bd9b7f3729d1.gif" width="200"/>
     <img src="https://i.pinimg.com/originals/1b/87/a8/1b87a85cff282de6793bc1b535ca9062.gif" width="200"/>
