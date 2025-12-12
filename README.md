@@ -22,7 +22,7 @@
      <div align="center">.⠀   ✧˖°.⠀  <div align="center">⠀  <div align="center">.⠀  <div align="center">⠀
 
  <div id="header" align="center">⭑⋆⋆⋆———————————︵ 🎧➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 m̲u̲s̲i̲c̲al̲  ̲𝐀r̲t̲i̲s̲t̲s̲ 𝙖𝙣𝙙 b̲an̲d̲s̲: ︵—————————————⭑⋆⋆⋆<div align="center"> ⭑────⭑
-   <div id="header" align="center"><h5>     ⸝⸝ᯓ               ⠀⠀<div id="header" align="center">MARETU,
+   <div id="header" align="center"><h5>     ⸝⸝ᯓ         <div id="header" align="center">⠀      ⠀⠀<div id="header" align="center">MARETU,
 <div id="header" align="center">NEEDY GIRL OVERDOSE OST
 <div id="header" align="center"> UNDERTALE OST
 <div id="header" align="center">The Living Tombstone
@@ -36,20 +36,21 @@
 <div id="header" align="center"> Heavenly 
 <div id="header" align="center">femtanyl 
 <div id="header" align="center">6arelyhuman.                    
-<div id="header" align="center">⠀⠀ᯓ⸝⸝</h5>           
+<div id="header" align="center">⠀<div id="header" align="center">⠀. . .</h5>           
   <img src="https://i.pinimg.com/736x/34/78/c6/3478c6e6aee7cfb85e9e211445e890a9.jpg" width="50"/>⠀⠀𓂃
       <img src="https://i.pinimg.com/736x/04/c2/e4/04c2e4bfb17f2bdf2f203e39ad2c2d13.jpg" width="100"/>
  <img src="https://i.pinimg.com/originals/ed/c6/23/edc6230bf65f994072b000b9e9913af9.gif" width="150"/> 
       <div align="center">⠀   <div align="center">⠀  
  <div id="header" align="center">⭑⋆⋆⋆———————————︵ 🌠➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 g̲am̲e̲s̲: ︵—————————————⭑⋆⋆⋆
 <div align="center"> ⭑────⭑
- <div id="header" align="center"><h4> ⸝⸝ᯓ              ⠀<div id="header" align="center"> Minecraft, <div id="header" align="center">Garry’s Mod, <div id="header" align="center">Lethal Company, <div id="header" align="center">Ultrakill, <div id="header" align="center">Genshin Impact, <div id="header" align="center">Terraria,<div id="header" align="center"> Undertale, <div id="header" align="center">Tricky Towers,<div id="header" align="center"> Illusion Carnival,<div id="header" align="center"> Unsorted Horror.                    ⠀<div id="header" align="center">⠀ᯓ⸝⸝</h2>
-  <img src="https://i.pinimg.com/originals/05/e7/8d/05e78d281879a5bbc3e36dcb42d9bcf9.gif" width="150"/> 
+
+   <div id="header" align="center"><h5> ⸝⸝ᯓ     <div id="header" align="center">⠀         ⠀<div id="header" align="center"> Minecraft, <div id="header" align="center">Garry’s Mod, <div id="header" align="center">Lethal Company, <div id="header" align="center">Ultrakill, <div id="header" align="center">Genshin Impact, <div id="header" align="center">Terraria,<div id="header" align="center"> Undertale, <div id="header" align="center">Tricky Towers,<div id="header" align="center"> Illusion Carnival,<div id="header" align="center"> Unsorted Horror.                 <div id="header" align="center">⠀   ⠀<div id="header" align="center">⠀. . .</h2>  
+<img src="https://i.pinimg.com/originals/76/87/f4/7687f41886b35677b63ccfb579d8c516.gif" width="70"/>   <img src="https://i.pinimg.com/originals/05/e7/8d/05e78d281879a5bbc3e36dcb42d9bcf9.gif" width="150"/> <img src="https://i.pinimg.com/originals/76/87/f4/7687f41886b35677b63ccfb579d8c516.gif" width="70"/>  
        <div align="center">⠀  <div align="center">⠀  <div align="center">⠀  
           
    <div id="header" align="center">⭑⋆⋆⋆———————————︵ 🔥➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 s̲t̲r̲e̲𝐀m̲e̲r̲s̲ :︵—————————————⭑⋆⋆⋆
         <div align="center"> ⭑────⭑
-    <div id="header" align="center"><h4>    T2x2, Хесус, Стинт (и много других)</h2>
+    <div id="header" align="center"> <h5> <div id="header" align="center"> T2x2 <div id="header" align="center">Хесус <div id="header" align="center">Стинт <div id="header" align="center">(и много других)<div id="header" align="center">⠀. . .  
  ʚɞ ⁺˖ ⸝⸝  ────   <img src="https://i.pinimg.com/originals/2b/2c/17/2b2c175ca2c5d30997893860f85786a1.gif" width="50"/> 
        <img src="https://i.pinimg.com/originals/2b/2c/17/2b2c175ca2c5d30997893860f85786a1.gif" width="100"/>
        <img src="https://i.pinimg.com/originals/4e/fe/dd/4efedd25f1671d59615d8eabae2d461c.gif" width="200"/> 
@@ -73,7 +74,7 @@
                   
 <div align="center">⠀⠀⠀⠀
        <div align="center">⠀
-          <div align="center">⠀⠀<img src="https://i.pinimg.com/736x/33/1d/63/331d636c6f5df0aae43834f6f817a1f1.jpg" width="300"/> 
+          <div align="center">⠀⠀<img src="https://i.pinimg.com/736x/33/1d/63/331d636c6f5df0aae43834f6f817a1f1.jpg" width="200"/> 
            <div align="center">
               <div align="center">⠀
                  <div align="center">⠀
