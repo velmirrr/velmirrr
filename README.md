@@ -74,23 +74,13 @@
                           <div align="center">⠀   <div align="center">⠀
                  <div align="center">⠀
                     <div align="center">⠀
-                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-                          <div align="center">⠀
-           <div align="center">
-              <div align="center">⠀
-                 <div align="center">⠀   <div align="center">⠀
-                 <div align="center">⠀
-                    <div align="center">⠀
-                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-                          <div align="center">⠀   <div align="center">⠀
-                 <div align="center">⠀
-                    <div align="center">⠀
+                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                        <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                           <div align="center">⠀
                   
 <div align="center">⠀⠀⠀⠀
        <div align="center">⠀
-          <div align="center">⠀⠀<img src="https://memetopia.ru/storage/memes/1/202512/MieoiDeSrqrNwG7BY1RQVi6HvlZPsh9eEWNYvVpgeGraoRRUzEIf6KtyYPegbhRimynq3xt7moilJEChlfviEuhyrykSfRh4F0cHmsTlyV9rq7bKKJVnjjfW6w6Z0ura.jpeg" width="300"/> <img src="https://i.pinimg.com/736x/90/c3/e4/90c3e4b5a0cef8f22f247e047812c2bf.jpg" width="200"/> 
+          <div align="center">⠀⠀<img src="https://memetopia.ru/storage/memes/1/202512/MieoiDeSrqrNwG7BY1RQVi6HvlZPsh9eEWNYvVpgeGraoRRUzEIf6KtyYPegbhRimynq3xt7moilJEChlfviEuhyrykSfRh4F0cHmsTlyV9rq7bKKJVnjjfW6w6Z0ura.jpeg" width="250"/> <img src="https://i.pinimg.com/736x/90/c3/e4/90c3e4b5a0cef8f22f247e047812c2bf.jpg" width="180"/> 
            <div align="center">
               <div align="center">⠀
                  <div align="center">⠀
@@ -129,4 +119,4 @@
                             <div align="center">⠀⠀⠀⠀⠀⠀⠀
                              <div align="center">⠀⠀⠀⠀⠀
                         
-<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU<div align="left">https://www.youtube.com/watch?v=EDt3rQxb_mU
+<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw<div align="left">https://www.youtube.com/watch?v=6S4NMv6g8Dw
