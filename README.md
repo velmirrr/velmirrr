@@ -67,10 +67,26 @@
                        <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                           <div align="center <div align="center">⠀⠀⠀⠀
        <div align="center">⠀
-          <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀
+          <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀   <div align="center">⠀
+                 <div align="center">⠀
+                    <div align="center">⠀
+                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+                          <div align="center">⠀   <div align="center">⠀
+                 <div align="center">⠀
+                    <div align="center">⠀
+                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+                          <div align="center">⠀
            <div align="center">
               <div align="center">⠀
+                 <div align="center">⠀   <div align="center">⠀
                  <div align="center">⠀
+                    <div align="center">⠀
+                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+                          <div align="center">⠀   <div align="center">⠀
+                 <div align="center">⠀
+                    <div align="center">⠀
+                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+                          <div align="center">⠀
                   
 <div align="center">⠀⠀⠀⠀
        <div align="center">⠀
@@ -92,10 +108,25 @@
        <div align="center">⠀
           <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀
            <div align="center">
-              <div align="center">⠀ <div id="header" align="right"> Я сей4ас буду пiть цuнк u3 3a т0г0 чt0 мнE v г0л0вн0й мОзг 3асыпали cVинbIе п0тр0ха
+              <div align="center">⠀ <div id="header" align="right"> Я сей4ас буду пiть цuнк u3 3a тог0 чt0 мнE в гол0вн0й мОзг 3асыпали cвинbIе потр0ха
                  <div align="center">⠀
                     <div align="center">⠀
                        <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                           <div align="center">
+                           <div align="center">⠀⠀⠀⠀⠀⠀⠀
+                            <div align="center">⠀⠀⠀⠀⠀⠀⠀
+                             <div align="center">⠀⠀⠀
+                    <div align="center">⠀
+                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+                          <div align="center">
+                           <div align="center">⠀⠀⠀⠀⠀⠀⠀
+                            <div align="center">⠀⠀⠀⠀⠀⠀⠀
+                             <div align="center">⠀⠀⠀⠀
+                    <div align="center">⠀
+                       <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+                          <div align="center">
+                           <div align="center">⠀⠀⠀⠀⠀⠀⠀
+                            <div align="center">⠀⠀⠀⠀⠀⠀⠀
+                             <div align="center">⠀⠀⠀⠀⠀
                         
-<div align="center">https://youtu.be/6S4NMv6g8Dw?si=spNr9psdP6fXQBF0
+<div align="left">https://www.youtube.com/watch?v=VJGaVkDpWr4
