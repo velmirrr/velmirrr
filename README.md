@@ -50,7 +50,7 @@
           
    <div id="header" align="center">⭑⋆⋆⋆———————————︵ 🔥➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 s̲t̲r̲e̲𝐀m̲e̲r̲s̲ :︵—————————————⭑⋆⋆⋆
         <div align="center"> ⭑────⭑
-    <div id="header" align="center"> <h5> <div id="header" align="center"><h5> ⸝⸝ᯓ <div id="header" align="center">⠀    <div id="header" align="center"> T2x2 <div id="header" align="center">Хесус <div id="header" align="center">Стинт <div id="header" align="center">(и много других) <div id="header" align="center">⠀  <div id="header" align="center">. . .<h5></h5>
+    <div id="header" align="center"> <h4> <div id="header" align="center"><h5> ⸝⸝ᯓ <div id="header" align="center">⠀    <div id="header" align="center"> T2x2 <div id="header" align="center">Хесус <div id="header" align="center">Стинт <div id="header" align="center">(и много других) <div id="header" align="center">⠀  <div id="header" align="center">. . .<h5>
  ʚɞ ⁺˖ ⸝⸝  ────   <img src="https://i.pinimg.com/originals/2b/2c/17/2b2c175ca2c5d30997893860f85786a1.gif" width="50"/> 
        <img src="https://i.pinimg.com/originals/2b/2c/17/2b2c175ca2c5d30997893860f85786a1.gif" width="100"/>
        <img src="https://i.pinimg.com/originals/4e/fe/dd/4efedd25f1671d59615d8eabae2d461c.gif" width="200"/> 
