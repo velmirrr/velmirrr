@@ -23,7 +23,7 @@
 
  <div id="header" align="center">⭑⋆⋆⋆———————————︵ 🎧➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 m̲u̲s̲i̲c̲al̲  ̲𝐀r̲t̲i̲s̲t̲s̲ 𝙖𝙣𝙙 b̲an̲d̲s̲: ︵—————————————⭑⋆⋆⋆<div align="center"> ⭑────⭑
    <div id="header" align="center"><h5>     ⸝⸝ᯓ               ⠀⠀<div id="header" align="center">MARETU,
-<div id="header" align="center">NEEDY GIRL OVERDOSE OSTs
+<div id="header" align="center">NEEDY GIRL OVERDOSE OST
 <div id="header" align="center"> UNDERTALE OST
 <div id="header" align="center">The Living Tombstone
 <div id="header" align="center">Rory in early 20s
