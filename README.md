@@ -103,7 +103,7 @@
                                               <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀
                                                      <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                                                             <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-    <div id="header" align="center"> *власть страницы перешла в руки аль-каиды*</h2>
+    <div id="header" align="center"></h1> *власть страницы перешла в руки аль-каиды*</h1>
       <div align="center">⠀⠀⠀⠀
        <div align="center">⠀
           <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀
