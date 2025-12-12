@@ -10,9 +10,9 @@
 
  <div id="header" align="center">⭑⋆⋆⋆———————————︵🎭➜ 𝙛𝙖𝙫 𝙘𝙝a𝙧𝙨: ︵—————————————⭑⋆⋆⋆
  <div align="center"> ⭑────⭑ 
-   <div align="center">
+   <div align="center"> ⠀ <div align="center">⠀⠀ <div align="center">⠀⠀ <div align="center">⠀⠀ 
  <img src="https://i.pinimg.com/originals/8c/34/6a/8c346ad0ccd44aa3cc7940f44c1f2f57.gif" width="100"/>  
-  <img src="https://i.pinimg.com/736x/2d/65/80/2d65803b2fdc410ccedac85dbf5d88ee.jpg" width="120"/> 
+  <img src="https://i.pinimg.com/736x/8e/28/24/8e2824629abdd05c5dcec140ea7a7902.jpg"width=120"/> 
    
   <img src="https://i.pinimg.com/736x/d0/e3/e7/d0e3e77707b96f7e30af135ecb8c7d59.jpg" width="90"/>
   <br/>
