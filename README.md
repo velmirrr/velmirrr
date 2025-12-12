@@ -90,7 +90,7 @@
                   
 <div align="center">⠀⠀⠀⠀
        <div align="center">⠀
-          <div align="center">⠀⠀<img src="https://i.pinimg.com/736x/a4/91/1b/a4911bd5695272147a87fc201b0d1feb.jpg" width="200"/> 
+          <div align="center">⠀⠀<img src="https://memetopia.ru/storage/memes/1/202512/MieoiDeSrqrNwG7BY1RQVi6HvlZPsh9eEWNYvVpgeGraoRRUzEIf6KtyYPegbhRimynq3xt7moilJEChlfviEuhyrykSfRh4F0cHmsTlyV9rq7bKKJVnjjfW6w6Z0ura.jpeg" width="300"/> <img src="https://i.pinimg.com/736x/90/c3/e4/90c3e4b5a0cef8f22f247e047812c2bf.jpg" width="200"/> 
            <div align="center">
               <div align="center">⠀
                  <div align="center">⠀
