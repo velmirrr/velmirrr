@@ -108,7 +108,7 @@
        <div align="center">⠀
           <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀
            <div align="center">
-              <div align="center">⠀ <div id="header" align="right"> Я сей4ас буду пiть цuнк u3 3a тог0 чt0 мнE в гол0вн0й мОзг 3асыпали cвинbIе потр0ха
+              <div align="center">⠀ <div id="header" align="right"> Я сейчас буду пить цинк из за того что мне в головной мОзг засыпали свиные потроха~
                  <div align="center">⠀
                     <div align="center">⠀
                        <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
