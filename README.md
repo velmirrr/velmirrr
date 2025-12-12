@@ -1,4 +1,5 @@
-
+<div id="header" align="center">﹌﹌﹌﹌﹌﹌﹌----------------﹌﹌﹌﹌﹌﹌﹌
+   <div id="header" align="center">
 <div id="header" align="center">❗❗❗❗──────── я люблю США кто не любит США dni тупые твари гомуды ────────❗❗❗❗
    <div align="center">  <div align="center">   <div align="center">⠀  <div align="center">⠀  
    <div id="header" align="center"> 
@@ -32,7 +33,7 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone, JackStauber, TV Girl, Lady Gaga,
 <div align="center"> ⭑────⭑
  <div id="header" align="center"><h4> ⸝⸝ᯓ              ⠀ Minecraft, Garry’s Mod, Lethal Company, Ultrakill, Genshin Impact, Terraria, Undertale, Tricky Towers, Illusion Carnival, Unsorted Horror.                    ⠀⠀ᯓ⸝⸝</h2>
   <img src="https://i.pinimg.com/originals/05/e7/8d/05e78d281879a5bbc3e36dcb42d9bcf9.gif" width="150"/> 
-       <div align="center">⠀  <div align="center">⠀  <div align="center">⠀  <div align="center">⠀
+       <div align="center">⠀  <div align="center">.⠀  <div align="center">⠀  <div align="center">⠀
           
    <div id="header" align="center">⭑⋆⋆⋆———————————︵🔥➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 s̲t̲r̲e̲a̲m̲e̲r̲s̲ :︵—————————————⭑⋆⋆⋆
         <div align="center"> ⭑────⭑
@@ -78,7 +79,7 @@ NEEDY GIRL OVERDOSE OSTs, The Living Tombstone, JackStauber, TV Girl, Lady Gaga,
        <div align="center">⠀
           <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀
            <div align="center">
-              <div align="center">⠀
+              <div align="center">⠀ <div id="header" align="right"> Я сейчас буду пить цинк из за того что мне в головной мОзг засыпали свиные потроха
                  <div align="center">⠀
                     <div align="center">⠀
                        <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
