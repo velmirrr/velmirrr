@@ -11,7 +11,7 @@
  <div id="header" align="center">⭑⋆⋆⋆———————————︵🎭➜ 𝙛𝙖𝙫 𝙘𝙝a𝙧𝙨: ︵—————————————⭑⋆⋆⋆
  <div align="center"> ⭑────⭑ 
    <h5> <div id="header" align="center">⸝⸝ᯓ<div align="center">⠀ <div id="header" align="center">Chiori (GI)
-    <div id="header" align="center">Mike Ehrmantraut (BB and BCS)
+    <div id="header" align="center">Mike Ehrmantraut (BB/BCS)
       <div id="header" align="center">Ferryman (Ultrakill)
          <div id="header" align="center"> Illusia (Illusion Carnival) <div align="center">⠀ <div id="header" align="center">⠀. . .</h5>  
    <div align="center"> ⠀ <div align="center">⠀⠀ <div align="center">⠀⠀ <div align="center">⠀⠀ 
