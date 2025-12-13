@@ -1,6 +1,6 @@
 
 
-<div id="header" align="center">я люблю США кто не любит США dni тупые твари гомуды 
+<div id="header" align="center">я люблю США кто не любит США dni тупые твари гомункуды 
    <div align="center">  <div align="center">   <div align="center">⠀  <div align="center">⠀  
    <div id="header" align="center"> 
 <div id="header" align="center">
