@@ -18,7 +18,7 @@
  <img src="https://i.pinimg.com/originals/de/61/1e/de611edccac5531ed3db38394bfc43a0.gif" width="100"/>  
   <img src="https://i.pinimg.com/736x/8e/28/24/8e2824629abdd05c5dcec140ea7a7902.jpg"width=120"/> 
    
-  <img src="https://i.pinimg.com/736x/d0/e3/e7/d0e3e77707b96f7e30af135ecb8c7d59.jpg" width="90"/>
+  <img src="https://i.pinimg.com/736x/d0/e3/e7/d0e3e77707b96f7e30af135ecb8c7d59.jpg" width="100"/>
   <br/>
   <img src="https://i.pinimg.com/736x/b5/f8/9b/b5f89b49dec7642eca2c64ab5a39513f.jpg" width="100"/>
   <img src="https://i.pinimg.com/736x/b7/ee/d9/b7eed9dd04ae821dab526af4cb89cca2.jpg" width="120"/>
