@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=velmirrr)
+![](https://komarev.com/ghpvc/?username=vermirrr&color=000000)
 <div id="header" align="center">я люблю США кто не любит США dni тупые твари гомункуды 
    <div align="center">  <div align="center">   <div align="center">⠀  <div align="center">⠀  
    <div id="header" align="center"> 
