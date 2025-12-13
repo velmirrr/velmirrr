@@ -10,6 +10,10 @@
 
  <div id="header" align="center">⭑⋆⋆⋆———————————︵🎭➜ 𝙛𝙖𝙫 𝙘𝙝a𝙧𝙨: ︵—————————————⭑⋆⋆⋆
  <div align="center"> ⭑────⭑ 
+   <h5> <div id="header" align="center">⸝⸝ᯓ<div align="center">⠀ <div id="header" align="center">Chiori (GI)
+    <div id="header" align="center">Mike Ehrmantraut (BB and BCS)
+      <div id="header" align="center">Ferryman (Ultrakill)
+         <div id="header" align="center"> Illusia (Illusion Carnival) <div align="center">⠀ <div id="header" align="center">⠀. . .</h5>  
    <div align="center"> ⠀ <div align="center">⠀⠀ <div align="center">⠀⠀ <div align="center">⠀⠀ 
  <img src="https://i.pinimg.com/originals/de/61/1e/de611edccac5531ed3db38394bfc43a0.gif" width="100"/>  
   <img src="https://i.pinimg.com/736x/8e/28/24/8e2824629abdd05c5dcec140ea7a7902.jpg"width=120"/> 
