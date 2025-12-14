@@ -89,7 +89,7 @@
               <div align="center">⠀
                  <div align="center">⠀
                     <div align="center">⠀
-                       <div align="center">⠀⠀⠀<img src="https://memetopia.ru/storage/memes/1/202512/YnandZSayXOcJofZdRbNCHq3DGMHrfjEx4D5KufaxM6C6RfBOiZGX4cVH7YjbJtCK5cvFzyY8nzwGGGnU8AfT674KzHQVB2IDismFVW2QRknCWmYll16hVyxKJ3yOJBJ.jpeg"width="100"/>⠀⠀⠀⠀<img src="https://memetopia.ru/storage/memes/1/202512/YnandZSayXOcJofZdRbNCHq3DGMHrfjEx4D5KufaxM6C6RfBOiZGX4cVH7YjbJtCK5cvFzyY8nzwGGGnU8AfT674KzHQVB2IDismFVW2QRknCWmYll16hVyxKJ3yOJBJ.jpeg"width="100"/>⠀⠀<img src="https://memetopia.ru/storage/memes/1/202512/YnandZSayXOcJofZdRbNCHq3DGMHrfjEx4D5KufaxM6C6RfBOiZGX4cVH7YjbJtCK5cvFzyY8nzwGGGnU8AfT674KzHQVB2IDismFVW2QRknCWmYll16hVyxKJ3yOJBJ.jpeg"width="100"/>⠀⠀<img src="https://memetopia.ru/storage/memes/1/202512/YnandZSayXOcJofZdRbNCHq3DGMHrfjEx4D5KufaxM6C6RfBOiZGX4cVH7YjbJtCK5cvFzyY8nzwGGGnU8AfT674KzHQVB2IDismFVW2QRknCWmYll16hVyxKJ3yOJBJ.jpeg"width="100"/>⠀⠀⠀⠀⠀⠀
+                       <div align="center">⠀⠀⠀⠀⠀
                           <div align="center">⠀
                          <div align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
                                 <div align="center">⠀
