@@ -41,8 +41,8 @@
 <div id="header" align="center">femtanyl 
 <div id="header" align="center">6arelyhuman.                    
 <div id="header" align="center">⠀<div id="header" align="center">⠀. . .</h5>           
-  <img src="https://i.pinimg.com/736x/34/78/c6/3478c6e6aee7cfb85e9e211445e890a9.jpg" width="50"/>⠀⠀𓂃
-      <img src="https://i.pinimg.com/736x/04/c2/e4/04c2e4bfb17f2bdf2f203e39ad2c2d13.jpg" width="100"/>
+  <img src="https://i.pinimg.com/736x/34/78/c6/3478c6e6aee7cfb85e9e211445e890a9.jpg" width="80"/>⠀⠀𓂃
+
  <img src="https://i.pinimg.com/originals/ed/c6/23/edc6230bf65f994072b000b9e9913af9.gif" width="150"/> 
       <div align="center">⠀   <div align="center">⠀  
  <div id="header" align="center">⭑⋆⋆⋆———————————︵ 🌠➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 g̲am̲e̲s̲: ︵—————————————⭑⋆⋆⋆
