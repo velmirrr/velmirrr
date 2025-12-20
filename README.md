@@ -8,7 +8,7 @@
    <div id="header" align="center">
   <img src="https://i.pinimg.com/originals/02/d5/43/02d5436362f7ff8f9470c7a4b9d8a061.gif" width="200"/>
 
- <div id="header" align="center">⭑⋆⋆⋆———————————︵🎭➜ 𝙛𝙖𝙫 𝙘𝙝a𝙧𝙨: ︵—————————————⭑⋆⋆⋆
+ <div id="header" align="center">ᅟ/﹌﹌﹌——————————︵🎭➜ 𝙛𝙖𝙫 𝙘𝙝a𝙧𝙨: ︵———————————﹌﹌﹌ \
  <div align="center"> ⭑────⭑ 
    <h5> <div id="header" align="center">⸝⸝ᯓ<div align="center">⠀ <div id="header" align="center">Chiori (GI)
     <div id="header" align="center">Mike Ehrmantraut (BB/BCS)
@@ -45,7 +45,7 @@
 
  <img src="https://i.pinimg.com/originals/ed/c6/23/edc6230bf65f994072b000b9e9913af9.gif" width="150"/> 
       <div align="center">⠀   <div align="center">⠀  
- <div id="header" align="center">⭑⋆⋆⋆———————————︵ 🌠➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 g̲am̲e̲s̲: ︵—————————————⭑⋆⋆⋆
+ <div id="header" align="center">/﹌﹌﹌——————————︵ 🌠➜𝙛𝙖𝙫𝙤𝙧𝙞𝙩𝙚 g̲am̲e̲s̲: ︵——————————﹌﹌﹌ \
 <div align="center"> ⭑────⭑
 
    <div id="header" align="center"><h5> ⸝⸝ᯓ     <div id="header" align="center">⠀         ⠀<div id="header" align="center"> Minecraft, <div id="header" align="center">Garry’s Mod, <div id="header" align="center">Lethal Company, <div id="header" align="center">Ultrakill, <div id="header" align="center">Genshin Impact, <div id="header" align="center">Terraria,<div id="header" align="center"> Undertale, <div id="header" align="center">Tricky Towers,<div id="header" align="center"> Illusion Carnival,<div id="header" align="center"> Unsorted Horror.                 <div id="header" align="center">⠀   ⠀<div id="header" align="center">⠀. . .</h2>  
