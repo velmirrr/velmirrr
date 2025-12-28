@@ -1,4 +1,5 @@
 <div id="header" align="center"> ✿ ﹌﹌﹌——————————————︵<img src="https://i.postimg.cc/Fs4kLK7k/Hi-Im-Velmir.png" width="170"/> ︵——————————————﹌﹌﹌ ✿
+    <div align="center"> ⭑────⭑ 
     <div id="header" align="center">     <div align="right">⠀ 
 
   <div id="header" align="center">── I’m into drawing, and I love sharing my creativity with others.<div id="header" align="center"> Iam not looking for friends on purpose; it usually happens spontaneously... <div align="right">⠀ <div id="header" <div align="center">Now I'll tell you a bit about myself.
