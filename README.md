@@ -5,7 +5,7 @@
  <div align="right">⠀   <div id="header" align="center">. . .  <div align="right">⠀  <div align="right">⠀ 
 
 <div id="header" align="center"><img src="https://i.pinimg.com/originals/cb/02/c0/cb02c0d8a0538c2d2132bd1fcda917f1.gif" width="90"/> <img src="https://i.pinimg.com/originals/f0/85/67/f08567f22ab1c632d9ef0baa56001d19.gif" width="300"/><img src="https://i.pinimg.com/originals/cb/02/c0/cb02c0d8a0538c2d2132bd1fcda917f1.gif" width="90"/> <div id="header" align="center">     <div align="right">⠀  <div align="right">⠀  
-<div id="header" align="center">        /﹌﹌﹌——————————︵💙➜ <img src="https://i.postimg.cc/tZgsKTMm/Fav-Chars-(3).png" width="100"/>: ︵———————————﹌﹌﹌ \ 
+<div id="header" align="center">        /﹌﹌﹌——————————︵💙➜ <img src="https://i.postimg.cc/tZgsKTMm/Fav-Chars-(3).png" width="130"/>: ︵———————————﹌﹌﹌ \ 
  <div align="center"> ⭑────⭑ 
  <div align="right">⠀ 
 <div id="header" align="center"> Chiori (GI) 
