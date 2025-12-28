@@ -1,11 +1,11 @@
-<div id="header" align="center"> ✿🤍 ﹌﹌﹌—————————————︵<img src="https://i.postimg.cc/Fs4kLK7k/Hi-Im-Velmir.png" width="170"/> ︵——————————————﹌﹌﹌ 🤍✿
+<div id="header" align="center"> ✿ ﹌﹌﹌——————————————︵<img src="https://i.postimg.cc/Fs4kLK7k/Hi-Im-Velmir.png" width="170"/> ︵——————————————﹌﹌﹌ ✿
     <div id="header" align="center">     <div align="right">⠀ 
 
   <div id="header" align="center">── I’m into drawing, and I love sharing my creativity with others.<div id="header" align="center"> Iam not looking for friends on purpose; it usually happens spontaneously... <div align="right">⠀ <div id="header" <div align="center">Now I'll tell you a bit about myself.
  <div align="right">⠀   <div id="header" align="center">. . .  <div align="right">⠀  <div align="right">⠀  
 
 <div id="header" align="center"><img src="https://i.pinimg.com/originals/cb/02/c0/cb02c0d8a0538c2d2132bd1fcda917f1.gif" width="90"/> <img src="https://i.pinimg.com/originals/f0/85/67/f08567f22ab1c632d9ef0baa56001d19.gif" width="300"/><img src="https://i.pinimg.com/originals/cb/02/c0/cb02c0d8a0538c2d2132bd1fcda917f1.gif" width="90"/> <div id="header" align="center">     <div align="right">⠀  <div align="right">⠀   <div align="right">⠀  <div align="right">⠀  
-<div id="header" align="center">        /﹌﹌﹌—————————————︵<img src="https://i.postimg.cc/tZgsKTMm/Fav-Chars-(3).png" width="130"/> ︵—————————————﹌﹌﹌ \ 
+<div id="header" align="center">        /﹌﹌﹌————————🤍—————︵<img src="https://i.postimg.cc/tZgsKTMm/Fav-Chars-(3).png" width="130"/> ︵——————🤍———————﹌﹌﹌ \ 
  <div align="center"> ⭑────⭑ 
  <div align="right">⠀ 
 <div id="header" align="center"> Chiori (GI) 
