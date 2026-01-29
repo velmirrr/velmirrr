@@ -1,5 +1,4 @@
+      
+  <div id="header" align="center">⠀  
 
-<div id="header" align="center"> <img src="https://img1.picmix.com/output/stamp/normal/1/7/6/4/2574671_e9c56.gif"width="100"/>
- <img src="https://img1.picmix.com/output/stamp/normal/8/1/1/2/2762118_0ca2c.png" width="150"/>
- <img src="https://img1.picmix.com/output/stamp/normal/1/7/6/4/2574671_e9c56.gif"width="100"/> 
-<div id="header" align="center"> <img src="https://img1.picmix.com/output/stamp/normal/2/0/1/8/1718102_ef1a3.gif"width="300"/>
+ <img src="https://i.pinimg.com/originals/25/a8/6f/25a86f5ffd6cb20bd0dda22dc01a1c66.gif" width="200"/> <img src="https://i.pinimg.com/originals/e6/2f/af/e62faf395703a0b040f94d38c80b0da9.gif" width="200"/> <img src="https://i.pinimg.com/originals/25/a8/6f/25a86f5ffd6cb20bd0dda22dc01a1c66.gif" width="200"/> 
