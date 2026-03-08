@@ -1,3 +1,4 @@
+
 <div id="header" align="center">✦ ✦ ✦　　　　　　
    <div id="header" align="center">୨⟢⟢─ ─ ─ ───--────────⊹₊˚‧︵‿₊୨𖦹୧₊‿︵‧˚₊⊹ ───────--──── ─ ─ ─⟢⟢୧
        <div id="header" align="center">  　
@@ -10,3 +11,5 @@
     <div id="header" align="center">  　
  <div id="header" align="center">୨ℳ─ ─ ─ ──────────────────⊹₊˚‧︵‿₊୨𖦹୧₊‿︵‧˚₊⊹ ────────────────── ─ ─ ─ℳ୧
 <div id="header" align="center"> •    •    •
+
+![](https://komarev.com/ghpvc/?username=vermirrr&color=000000)   　
