@@ -1,15 +1,7 @@
-
-<div id="header" align="center">✦ ✦ ✦　　　　　　
-   <div id="header" align="center">୨⟢⟢─ ─ ─ ───--────────⊹₊˚‧︵‿₊୨𖦹୧₊‿︵‧˚₊⊹ ───────--──── ─ ─ ─⟢⟢୧
-       <div id="header" align="center">  　
-<div id="header" align="center"> 
-        <img src="https://i.pinimg.com/originals/55/61/34/556134e42528e8df586b1c2b3b48d2bd.gif" width="90"/>
-  <img src="https://i.pinimg.com/originals/a0/39/7f/a0397fdd3a7bc1c7cd5441ecd4fcfb7e.gif" width="170"/> 
-  <img src="https://s10.iimage.su/s/05/th_gK0v1lIx5pnIjkGT3rgOediXsPVYNzoiTop3GgYNZ.png" width="270"/>
- <img src="https://i.pinimg.com/originals/a0/39/7f/a0397fdd3a7bc1c7cd5441ecd4fcfb7e.gif" width="170"/>
-        <img src="https://i.pinimg.com/originals/55/61/34/556134e42528e8df586b1c2b3b48d2bd.gif" width="90"/>
-    <div id="header" align="center">  　
- <div id="header" align="center">୨ℳ─ ─ ─ ──────────────────⊹₊˚‧︵‿₊୨𖦹୧₊‿︵‧˚₊⊹ ────────────────── ─ ─ ─ℳ୧
-<div id="header" align="center"> •    •    •
-
-![](https://komarev.com/ghpvc/?username=vermirrr&color=000000)   　
+![](https://komarev.com/ghpvc/?username=vermirrr&color=000000)
+   <div align="center">  <div align="center">   <div align="center">⠀  <div align="center">⠀  
+   <div id="header" align="center"> 
+<div id="header" align="center">
+  <img src="https://i.pinimg.com/originals/bf/cc/03/bfcc03f672210496813ff40736ad7740.gif" width="300"/>
+   <div id="header" align="center">
+  <img src="https://i.pinimg.com/originals/02/d5/43/02d5436362f7ff8f9470c7a4b9d8a061.gif" width="300"/>
